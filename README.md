@@ -1,1 +1,1 @@
-# WHere-to-start
+WHERE TO START
